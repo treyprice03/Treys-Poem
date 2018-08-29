@@ -18,3 +18,7 @@ we laugh and shout.
 We get to school.
 We all pile out.
 We go to class, to lunch, 
+and then
+it's time to ride the bus again.
+The bus time's fun.
+I think it's cool.
