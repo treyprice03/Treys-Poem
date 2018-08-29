@@ -22,3 +22,5 @@ and then
 it's time to ride the bus again.
 The bus time's fun.
 I think it's cool.
+It's my favorite
+part of school.
