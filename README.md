@@ -7,8 +7,8 @@ And while we ride,
 there's lots to do.
 We talk a lot 
 and throw some hats,
-play keep away
-and things like that.
+we play keep away
+and other things like that.
 The driver yells,
 but we don't mind.
 Beneath it all
